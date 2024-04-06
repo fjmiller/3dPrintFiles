@@ -15,7 +15,7 @@ Printed at .15 Layer height on XL with no supports and it printed great.</li>
 
  <br>
 
-Garage Door Opener: Garage Door Opener Remote with Keychain, Replacement for LiftMaster/Chamberlain/Craftsman Garage Door Opener Remote, 4 Button Remote, Replaces 890MAX 893MAX G953EV-P2, 2 Pack - Amazon.com
+Garage Door Opener: https://www.amazon.com/gp/product/B0B2W8F82R/ref=ppx_yo_dt_b_search_asin_title?ie=UTF8&th=1
 Bolts and Screws used are M3 sized
 I used a piece of batting under the arms so it doesn't scratch the bars.  I would propose you do something similar.
  <br>
